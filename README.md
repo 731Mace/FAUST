@@ -1,4 +1,4 @@
-# ST.FAUST
+# SAINT FAUST
 Sick your lauphren nesters on a trait sSri Lauphter is OZMANIA was PH Hep House Pool A fun time ad vax apres syntext right.
 Take it as a foretelling stylistic and burr-fault to include that of the Original Lion King Store that if there is anything that 
 wanted to know in the field of dealing inside the greater of the cradle of rye and store-caught then turned out for someother shit 
