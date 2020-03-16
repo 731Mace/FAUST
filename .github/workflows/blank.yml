@@ -1,8 +1,9 @@
 # 
-
+- name: Action Hugo
+  uses: kevvurs/action-hugo@v1.0-rc2
 
 name: Setup Node.js for use with actions
-  uses:actions/setup-node@v1.1.0
+  uses: actions/setup-node@v1.1.0
   with:
     # Version Spec of the version to use.  Examples: 10.x, 10.15.1, >=10.15.0, lts
     version: # optional, default is 10.x
@@ -25,7 +26,8 @@ on:
     branches: [ master ]
   pull_request:
     branches: [ master ]
-
+- name: calibreapp/github-actions
+  uses: calibreapp/github-actions@1.0.2
 # A workflow run is made up of one or more jobs that can run sequentially or in parallel
 jobs:
   # This workflow contains a single job called "build"
