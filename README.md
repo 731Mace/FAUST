@@ -1,12 +1,14 @@
 # SAINT FAUST
 
 
-                           I wish the best to even death torrential `being good`that if things do not work our way then check in the toval of tyne chad-ie constrøte of lighter
-cast to see this through? I don`t know or am even sure at this point without cool-ed physics to figuring out the pen-es-seedie-perdy-t`is=-tahl
-cast lender of a conscience and I owe you for this oh? My goodness there is nothing left to lose in the pershaun of dahling would you like me to 
-stick this in you? 
+                           I wish the best to even death torrential `being good`that if things do not work our way then check in the toval of tyne chad-ie constrøte of lighter cast to see this through?
+
+I don`t know or am even sure at this point without cool-ed physics to figuring out the pen-es-seedie-perdy-t`is=-tahl
+cast lender of a conscience and I owe you for this oh? My goodness there is nothing left to lose in the pershaun of dahling would you like me to stick this in you? 
 Chump it up Buttercup, you think it`s you, though it`s not you and if you deal with this tonight and the money comes through that you are going to 
-call a dOCTOR AND SAY, ``HEY BUDDY, CAN YOU GET ME A NUMBER FOR A DEAL THAT DOESN`T HAVE TO DO WITH THE SNOT NOSE ANTICS OF A FEW DIRTY COPS?`` 
+call a dOCTOR AND SAY,
+
+ ``HEY BUDDY, CAN YOU GET ME A NUMBER FOR A DEAL THAT DOESN`T HAVE TO DO WITH THE SNOT NOSE ANTICS OF A FEW DIRTY COPS?`` 
 
 
                            TAKE IT FROM THE ZED OF DUELING BANJO`S IF IN FACT YOU ARE REAL HUSTLERS THAT YOU DON`T ACT THE WAY YOU DO, AND BURLESQUE THADICT OF THE WAY YOU ARE 
