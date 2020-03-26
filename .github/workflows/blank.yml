@@ -1,4 +1,4 @@
-#REPO_URL="https://github.com/bitcoin/bitcoin.git"
+# REPO_URL="https://github.com/bitcoin/bitcoin.git"
 
 # See https://github.com/bitcoin/bitcoin/tags for latest version.
 VERSION=0.19.0.1
