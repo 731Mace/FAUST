@@ -32,11 +32,7 @@ jobs:
       run: |
         echo Add other actions to build,
         echo test, and deploy your project.
-<script
-  src="https://browser.sentry-cdn.com/5.27.1/bundle.tracing.min.js"
-  integrity="sha384-nPH7Rousi6RcXhNup3OOExWEQshIYKy4aDAA2SBkfXG2ipYQSX+y6KxFZUVOKxqG"
-  crossorigin="anonymous"
-></script>
+
                            
 I wish the best to even death torrential `being good`that if things do not work our way then check in the toval of tyne chad-ie constrøte of lighter cast to see this through?
 
@@ -69,3 +65,5 @@ CHAUNIE LUCK. JUENE-IE, GINNY, PUNEY, VIGGIE, PILL-IE LUCK|!|
 
 
 macen mansfield
+
+
